@@ -119,4 +119,9 @@ It also gave me the chance to apply design thinking and storytelling to data, wh
 
 If you’d like to discuss this report or how I can help visualize your business data, feel free to reach out.  
 
+## 👤 Author
+
+**[Sharon Nwajiaku]**  
+📧 1sharonbukky@gmail.com  
+🔗 [LinkedIn](https://www.linkedin.com/in/sharon-nwajiaku-2a22022b8?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) | [Portfolio](https://sharon-analytics.github.io/)
 
